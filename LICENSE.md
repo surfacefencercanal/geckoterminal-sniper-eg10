@@ -1,4 +1,4 @@
-# 
+# automatic geckoterminal sniper bot | buy-pressure-analysis + new-token-detection offers the most advanced geckoterminal sniper bot, with buy-pressure-analysis and
 
 
 
